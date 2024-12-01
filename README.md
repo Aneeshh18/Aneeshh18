@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **Aneeshsahu18@gmail.com**
 
-- ⚡ Fun fact **I think I'm the Best!😎**
+- ⚡ Fact **Hard Work && Consistency > Talent**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
